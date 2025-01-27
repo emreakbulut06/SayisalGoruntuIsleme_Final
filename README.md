@@ -1,1 +1,1 @@
-# Say-salGoruntuIsleme_Final
+# SayisalGoruntuIsleme_Final
